@@ -340,23 +340,273 @@ heart.
 
 ## Ideas Do Not Come Linearly
 
-'''
+```
 Ideas come according to their own logic. That
 logic is not rational. It’s not linear. We may get the
 middle before we get the end. We may get the end
 before we get the beginning. Be ready for this. Don’t
 resist it.
-
 ```
-
 
 ```
 Nothing is more fun than turning on the recorder
 and hearing your own voice telling you a fantastic
 idea that you had completely forgotten you had.
+```
+
+## The Process
+
+
+the idea generation process is in two stages
+
+* Action 
+* Reflection
+
+// never act and reflect at the same time
+
+
+## The Definition of Action and Reflection
+
+In writing, “action” means putting words on paper. //writing the code
+
+“Reflection” means evaluating what we have on paper. // testing
+
+
+“Stay Stupid,” :: mean don’t self-censor, don’t indulge in self-doubt, don’t permit self-judgment.
+
+```
+Forget rational thought. Play. Play like a child.
 
 ```
 
 
+"""
+Our job is not to control our idea; our job is to
+figure out what our idea is (and wants to be)—and
+then bring it into being.
+"""
+
+**Bob Dylan’s Chronicles** ????
+
+
+## The Answer Is Always Yes
+
+
+When an idea pops into our head and we think, “No, this is too crazy,”
+… that’s the idea we want.
+
+
+
+When we think, “This notion is completely off the wall … should I even
+take the time to work on this?”
+… the answer is yes.
+
+
+Never doubt the soup. Never say no.
+The answer is always yes.
+
+
+
+## The Opposite of Resistance
+
+```
+The universe is also actively benevolent. You
+should be feeling this now. You should be feeling a
+tailwind.
+```
+
+**The opposite of Resistance is Assistance.**
+
+
+```
+A work-in-progress generates its own energy field.
+You, the artist or entrepreneur, are pouring love into
+the work; you are suffusing it with passion and
+intention and hope. This is serious juju. The universe
+responds to this. It has no choice.
+
+```
+
+"""
+Your work-in-progress produces its own gravitational field, created by your
+will and your attention. This field attracts like-spirited entities into its orbit.
+"""
+
+## ideas
+
+```
+Assistance is the universal, immutable force of
+creative manifestation, whose role since the Big Bang
+has been to translate potential into being, to convert
+dreams into reality.
+```
+
+## Keep Working
+
+-------------------------
+How much time can you spare each day?
+
+For that interval, close the door and—short of a family emergency or the
+outbreak of World War III—don’t let ANYBODY in.
+--------------
+
+
+## Keep Working, Part Two
+
+'''
+Ignore false negatives. Ignore false positives. Both are Resistance.
+'''
+
+
+
+## Act/Reflect, Part Two
+
+Keep refining your understanding of the theme; keep narrowing it down
+
+```
+Pause and reflect. “What is this project
+about?” “What is its theme?” “Is every element serving that theme?”
+```
+
+
+
+
+
+## Fill in the Gaps, Part Two
+
+
+**Ask yourself what’s missing. Then fill that void.**
+
+
+## Now We’re Rolling
+
+'''
+weeks into projects when this start getting interesting
+'''
+
+  **THE WALL**
+  
+  // when we hit the wall **no progress**
+  
+  """
+  That “You suck” voice is back, howling in our
+  head.
+  """
+  
+"""
+  We’re poised at the brink of a creative
+breakthrough and we can’t stand it. The prospect of
+success looms. We freak. Why did we start this
+project? We must have been insane. Who encouraged
+us? We want to wring their necks. Where are they
+now? Why can’t they help us?
+"""
+
+## THE BELLY OF THE BEAST 
+		
+		**WELCOME TO HELL**
+
+
+
+
+## Principle Number One: There Is an Enemy
+
+
+There is an enemy. There is an intelligent, active,
+malign force working against us.
+
+**Step one is to recognize this.**
+
+
+This recognition alone is enormously powerful. It
+saved my life, and it will save yours.
+
+// i don't know where this is headed yet
+
+
+## principle Number Two: This Enemy is Implacable
+
+```
+Its aim is not to obstruct or to hamper or to
+impede. Its aim is to kill.
+
+```
+
+
+## principle number Three: This Enemy is Inside you
+
+**"peripheral opponents."** : ~according to a former coach of the Laker **pat riley**
+
+is fame and ego (not to mention crazed fans, the press, agents, sponsors and ex-wives) works against the players chances for on-court success.
+
+
+"""
+Resistance is not a peripheral opponent. It does not arise from rivals,
+bosses, spouses, children, terrorists, lobbyists, or political adversaries.
+"""
+
+**All this comes from us**
+
+
+
+## Principle Number Four: The Enemy Is Inside You, But It Is Not You
+
+""
+What does that mean? It means you are not to
+blame for the voices of Resistance you hear in your
+head.
+""
+
+**If you’ve got a head, you’ve got a voice of Resistance inside it.**
+
+
+
+## Principle Number Five: The “Real You” Must Duel the “Resistance You”
+
+
+You are the knight.
+
+Resistance is the dragon.
+
+
+## Principle Number Six: Resistance Arises Second
+
+The sixth principle of Resistance (and the key to overcoming it) is that
+Resistance arises second.
+
+"""
+What comes first is the idea, the passion, the
+dream of the work we are so excited to create that it
+scares the hell out of us.
+"""
+
+Resistance is the response of the frightened, petty, small-time ego to the
+brave, generous, magnificent impulse of the creative self.
+
+
+```
+It means that before the dragon of Resistance
+reared its ugly head and breathed fire into our faces,
+there existed within us a force so potent and life-
+affirming that it summoned this beast into being,
+perversely, to combat it.
+```
+
+**Resistance is more like the pain-in-the-ass schoolteacher who won’t let us climb that tree in the playground**
+
+
+"""
+Love for the material, love for the work, love for
+our brothers and sisters to whom we will offer our
+work as a gift.
+"""
+
+
+**In Greek, the word is eros. Life force. Dynamis, creative drive.**
+
+**// when face with resistance remember why you started**
+
+
+**Principle Number Seven: The Opposite of Resistance Is Assistance**
 
 
