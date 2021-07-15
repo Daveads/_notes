@@ -310,6 +310,53 @@ Only one thing matters in this initial draft: get SOMETHING done,
 however flawed or imperfect.
 """ 
 
-perfectionism == "resistance"
+perfectionism == "resistance" 
+
+--------------
+THOUGHTS
+--------------
+/**
+Fucking perfection
+
+But
+
+This can't be possible for all cases e.g. working on a [security, health, space] related software 
+
+i guess that's why testing is important or some sort of stimulation
+**/
+
+
+
+
+## The Crazier the better
+
+**suspending self-judjement doesn't just mean blowing off the the "you suck" voice means libration from conventional expectation**
+
+
+```
+Stay stupid. Follow your unconventional, crazy
+heart.
+```
+
+## Ideas Do Not Come Linearly
+
+'''
+Ideas come according to their own logic. That
+logic is not rational. It’s not linear. We may get the
+middle before we get the end. We may get the end
+before we get the beginning. Be ready for this. Don’t
+resist it.
+
+```
+
+
+```
+Nothing is more fun than turning on the recorder
+and hearing your own voice telling you a fantastic
+idea that you had completely forgotten you had.
+
+```
+
+
 
 
