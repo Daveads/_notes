@@ -609,4 +609,125 @@ work as a gift.
 
 **Principle Number Seven: The Opposite of Resistance Is Assistance**
 
+//stuffs that could cross your mind #resistance
+
+"""
+“You’re too young, you’re too inexperienced; you’ve got no credentials, no
+credibility. Everyone who’s tried this has failed and you will, too. It can’t be
+done. Your plane will crash, you’re going to drown, you’re a madman who
+is attempting the impossible and you deserve whatever dire fate befalls
+you!”
+"""
+
+* love the idea
+
+```
+The seventh principle of Resistance is that we can align ourselves with
+these universal forces of Assistance—this dream, this passion to make the
+unmanifest manifest—and ride them into battle against the dragon.
+```
+
+## Resistance’s Two Tests
+
+Test number one : 
+* how bad do you want it ?
+
+"""
+Dabbling • Interested • Intrigued but Uncertain • Passionate • Totally
+Committed
+"""
+
+Test Number Two :
+* why do you want it ?
+
+
+-----------------------------------------
+1. For the babes (or the dudes)
+2. The money
+3. For fame
+4. Because I deserve it
+5. For power
+6. To prove my old man (or ex-spouse, mother, teacher, coach) wrong
+7. To serve my vision of how life/mankind ought to be
+8. For fun or beauty
+9. Because I have no choice
+-----------------------------------------
+
+8,9 
+
+
+## The Attitude Adjustment Chamber
+
+Things you don't get to keep :
+
+* Your ego
+* Your sense of entitlement
+* Your impatience
+* Your fear
+* Your hope
+* Your anger
+
+* All grievances related to aspects of yourself dependent on the accident of birth.
+* All sense of personal exceptionalness dependent on the accident of birth.
+
+```
+The only items you get to keep are love for the
+work, will to finish, and passion to serve the ethical
+
+```
+
+
+# ch 3
+
+### THE BIG CRASH
+
+"""
+The Big Crash is so predictable, across all fields of
+enterprise, that we can practically set our watches by
+it.
+"""
+
+
+### Ringing The Bell
+
+Just like the Navy silly training // US military, we also have a bell hanging over us
+
+"""
+Ring the bell if ready to quit or drop out
+"""
+
+
+There’s a difference between Navy SEAL training and what you and I are facing now.
+
+**Our ordeal is harder. Because we're alone**
+
+
+## 	CRASHES ARE GOOD
+
+**Crashes are hell, but in the end they’re good for us.**
+
+
+**A crash means we have failed. We gave it everything we had and we came up short. A crash does not mean we are losers.**
+
+ * a crash mean we have to grow
+ * a crash means we are at the threshold of learning something //means we're getting better, aquiring the wisdom of our craft.
+
+ * it compels us to figure what works and what does'nt , and to understand the diff
+
+"""
+ We got ourselves into this mess by mistakes we made at the start. How?
+Were we lazy? Inattentive? Did we mean well but forget to factor in human
+nature? Did we assess reality incorrectly?
+"""
+
+--------------------------------------------
+Whatever the cause, the Big Crash compels us to
+go back now and solve the problem that we either
+created directly or set into motion unwittingly at the
+outset.
+--------------------------------------------
+
+
+## Panic Is Good
+
 
